@@ -4,6 +4,8 @@
 
 # How to Tie a Tie
 
+This is an example of a how-to
+
 Have you graduated beyond the clip-on tie? Beginning with these helpful instructions, a sharp-looking tie, a mirror, and
 some patience, you can become an expert in tying your own fashionable knot. You have several options available, from the
 versatile Four-in-Hand Knot to the classic Windsor. If you're helping someone else put on a
